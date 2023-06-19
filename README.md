@@ -7,3 +7,4 @@ You need a key to use it you can bye here : https://lestudio.mysellix.io/en/
 For help comme here : https://discord.gg/lestudio
 
 ## Video
+https://www.youtube.com/watch?v=46_spEH-rAc
